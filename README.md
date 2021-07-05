@@ -1,0 +1,1 @@
+o curso está sendo ótimo, estou gostando da metodologia de ensino
